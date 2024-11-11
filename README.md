@@ -1,1 +1,0 @@
-# Informasi-Sulawesi-Selatan
